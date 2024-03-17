@@ -1,1 +1,1 @@
-
+Although Murray's predictions weren't "exact", her prediction relates to the immersion created for the actors/viewers of The Mandalorian. So although she had not predicted the actual technology used for it's production specifically (LED screens), the concept of "inhabiting a virtual environment" and being able to interact with a digital surrounding fits her theory. In the production, the actors can actually visibly see the intended environment instead of a green screen, forming a more "real" experience.
