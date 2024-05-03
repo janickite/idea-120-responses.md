@@ -1,0 +1,1 @@
+Videogame creation being more accessible would allow people with different approaches, create games that are more relatable to their personal experiences- whether to feel like they can relate to or connect to either the characters, story, or purpose of the game. This can provide more diverse perspectives for players and videogame innovation. 
